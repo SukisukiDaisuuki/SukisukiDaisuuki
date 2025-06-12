@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/3858750f-f444-41ce-9848-c704897b6d1f)
+![dogs-densetsu](https://github.com/user-attachments/assets/72573279-d184-4846-9006-3e966c847b53)
+
             
 
 
