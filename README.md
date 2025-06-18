@@ -1,4 +1,5 @@
-![dogs-densetsu](https://github.com/user-attachments/assets/72573279-d184-4846-9006-3e966c847b53)
+![download (31)](https://github.com/user-attachments/assets/8a7fb1b1-eff6-4645-aae5-40abd4804330)
+
 
             
 
