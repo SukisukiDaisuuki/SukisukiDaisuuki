@@ -1,4 +1,6 @@
-![download (31)](https://github.com/user-attachments/assets/8a7fb1b1-eff6-4645-aae5-40abd4804330)
+![so silly!!](https://github.com/user-attachments/assets/18e3f189-292a-400e-87b9-43a3e2846579)
+
+
   
 𝚙𝚛𝚒𝚗𝚝𝚎𝚛𝚜 𝚝𝚘 𝚝𝚞𝚝 𝚜𝚔𝚒𝚗𝚜 𝚍𝚗𝚒.   𝚑𝚒 𝚑𝚒 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙺𝚒𝚎𝚛𝚊𝚗 𝚘𝚛 𝚖𝚘𝚔𝚒
             
