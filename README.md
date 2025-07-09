@@ -10,4 +10,4 @@
 
 ![so silly!!](https://github.com/user-attachments/assets/52d9686b-e362-4836-b8ac-acf42fbfb062)
  𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 but  I'm a girl I dont mind anyways^_^ welcomed to int or whatever(:
-Please don't act with hostility towards me as I dont take it lightly,One thing i absolutely love is sitting with people and c+h its nice to sit with other unique people and chat!! (additional im a minor so keep some things safe i Dont mind wacky and weird jokes and all just not anything crossing the line )
+Please don't act with hostility towards me as I dont take it lightly,One thing i absolutely love is sitting with people and c+h its nice to sit with other unique people and chat!! (additional im a minor so keep some things safe i Dont mind wacky and weird jokes and all just not anything crossing the line)
