@@ -11,3 +11,4 @@
 ![so silly!!](https://github.com/user-attachments/assets/52d9686b-e362-4836-b8ac-acf42fbfb062)
  𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 but  I'm a girl I dont mind anyways^_^ welcomed to int or whatever(:
 Please don't act with hostility towards me as I dont take it lightly,One thing i absolutely love is sitting with people and c+h its nice to sit with other unique people and chat!! (additional im a minor so keep some things safe i Dont mind wacky and weird jokes and all just not anything crossing the line)
+Wip rn  <img width="1920" height="1170" alt="Screenshot 2025-07-03 225352_PhotoGrid" src="https://github.com/user-attachments/assets/6035431f-bdc8-4d66-9571-d80791c97ad9" />
